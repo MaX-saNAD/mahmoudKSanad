@@ -1,1 +1,4 @@
-some stranger want to get better to make the world a better place to live. or as I name it the "YOUtopia"
+A weirdo creature on a mission to make the world a different place to exist in.
+Or as I name it — the **YOUTopIa**.
+
+**Web Developer & Designer** — custom code, no templates.
